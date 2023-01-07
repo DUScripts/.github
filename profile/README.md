@@ -1,1 +1,1 @@
-sasdasd
+This Account keeps track of every Dual Universe script or app i can find online. Plus some that arent usualy found online. Please find the script you like then clock on the original author link for the most up to date version if it has been forked. For items that have not been forked i try to keep everything up to date.
